@@ -16,4 +16,4 @@ For Contact: https://discord.gg/Ur3a9Wt999 & `lytwest#0686 - KlouqzSenpai#0001 |
 - Bu Log vs. İşlemler "25 Haziran" Tarihinden İtibaren Yapılmakta Olup,Önceki Veriler Mevcut Değildir.
 - Ek Olarak Bu Bilgiler Haftalık Olarak ve Güncelleme Zamanında Silinmektedir,Ek Olarak Bilgi Sızıntısı Olursa Bize Söylemekten Çekinmeyin.
 
-İletişim İçin : https://discord.gg/Ur3a9Wt999 & `lytwest#0686 - KlouqzSenpai#0001 | 2021 - Poliéncé™
+İletişim İçin : https://discord.gg/Ur3a9Wt999 & `lytwest#0017 - Klouqz#0001 | 2022 - Poliéncé™
