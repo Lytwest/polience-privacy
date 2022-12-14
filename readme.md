@@ -6,7 +6,7 @@
 - This Log vs. Transactions are being made as of "25 June" and previous data are not available.
 - In addition, this information is deleted weekly and at the time of updating, in addition, if there is a leak of information, do not hesitate to tell us.
 
-For Contact: https://discord.gg/Ur3a9Wt999 & `lytwest#0686 - KlouqzSenpai#0001 | 2021 - Poliéncé™
+For Contact: https://discord.gg/Ur3a9Wt999 https://lytwest.live & `lytwest#0017 - Klouqz#0001 | 2022 - Poliéncé™
 
 # [TR] Botda Hangi Veriler Depolanmaktadır?
 - Poliéncé'ın Gelişimi İçin Hangi Sunucuya Eklendiği Log Yoluyla Geliştiricilere İletilir.
@@ -16,4 +16,4 @@ For Contact: https://discord.gg/Ur3a9Wt999 & `lytwest#0686 - KlouqzSenpai#0001 |
 - Bu Log vs. İşlemler "25 Haziran" Tarihinden İtibaren Yapılmakta Olup,Önceki Veriler Mevcut Değildir.
 - Ek Olarak Bu Bilgiler Haftalık Olarak ve Güncelleme Zamanında Silinmektedir,Ek Olarak Bilgi Sızıntısı Olursa Bize Söylemekten Çekinmeyin.
 
-İletişim İçin : https://discord.gg/Ur3a9Wt999 & `lytwest#0017 - Klouqz#0001 | 2022 - Poliéncé™
+İletişim İçin : https://discord.gg/Ur3a9Wt999 https://lytwest.live & `lytwest#0017 - Klouqz#0001 | 2022 - Poliéncé™
