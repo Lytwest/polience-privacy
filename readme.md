@@ -8,6 +8,8 @@
 
 For Contact: https://discord.gg/Ur3a9Wt999 https://lytwest.live & `lytwest#0017 - Klouqz#0001 | 2022 - Poliéncé™
 
+**The Privacy Policy has ended 07/12/23 @ 17.00 GMT+3, Please contact us for future information.**
+
 # [TR] Botda Hangi Veriler Depolanmaktadır?
 - Poliéncé'ın Gelişimi İçin Hangi Sunucuya Eklendiği Log Yoluyla Geliştiricilere İletilir.
 - Ücretsiz Premium Puan Yolu,Puanlar ve Toplamda Kaç Kez Komutunun Kullandığı Log Olarak İletilir.
